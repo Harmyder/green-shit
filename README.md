@@ -1,0 +1,1 @@
+Collection of people who publicly support Zelenskyy.
