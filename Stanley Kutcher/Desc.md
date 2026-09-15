@@ -1,0 +1,2 @@
+https://www.facebook.com/stan.kutcher/posts/pfbid025h1FqdWkX6L4TUajdSNNZQkcDVq6aj8yjEu7coPi4ScPBKaBhWXUCuri14XnohG1l
+https://www.facebook.com/stan.kutcher/posts/pfbid022NuQ3uJ5gHBWK9jzPWwz1tsoK5Zp7tuViRdPuBtngvraUsguNwXoZd623YfgCHuzl
